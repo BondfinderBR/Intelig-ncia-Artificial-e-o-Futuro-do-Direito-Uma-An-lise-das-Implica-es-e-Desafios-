@@ -1,4 +1,4 @@
-# Inteligncia Artificial e o Futuro-do Direito Uma Análise das Implicões e Desafios
+# Inteligncia Artificial e o Futuro-do Direito Uma Análise das Implicações e Desafios
 
 https://www.youtube.com/watch?v=FEzl80oz5yY&t=467s
 
